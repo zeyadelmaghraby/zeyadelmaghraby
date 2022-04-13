@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **zeyad.elmaghraby@gmail.com**
 
-- 📄 Know about my experiences <a href="[https://onedrive.live.com/?cid=86406AF4A689513B&id=86406AF4A689513B%21105&parId=root&o=OneUp](https://onedrive.live.com/?cid=86406AF4A689513B&id=86406AF4A689513B%21105&parId=root&o=OneUp)">Resume</a>
+- 📄 Know about my experiences <a href="https://onedrive.live.com/?cid=86406AF4A689513B&id=86406AF4A689513B%21105&parId=root&o=OneUp">Resume</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
